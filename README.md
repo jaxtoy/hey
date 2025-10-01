@@ -7,14 +7,17 @@
 
   ‎![](https://komarev.com/ghpvc/?username=jaxtoy&color=4D6A75&style=flat&label=VERY+REAL+FANS&base=476)
 
+— [PrnsCC](https://pronouns.cc/@jaxtoy) — [Rentry](https://rentry.co/jaxful) — [Guestbook](https://jaxtoy.atabook.org) —
 
 <details>
-    <summary>About Me!!!!</summary>
+    <summary>[Click here] About Me!!!!</summary>
     Hey I'm Lapis/Michael/Jax
   I'm 15 and I'm fictionkin+otherkin
   I really love making ponies on ponytown and I've been playing since 2021
+
+  If I follow you it's because I like your pony
 </details>  <details>
-    <summary>Pony Town info </summary>
+    <summary>[Click here] Pony Town info </summary>
     🟢 = You can talk to me
   
   ⛔ = May be busy or not in the mood to talk 
@@ -26,6 +29,8 @@
   
   You'll always find me around the TADC/Glitch Productions area, if not then idk what I'm doing
 </details>
+
+![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pckevxz6pumgh53wq6n6mop6t4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=bc80cf&bar_color_cover=false)
 
 
 
