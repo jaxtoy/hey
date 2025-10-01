@@ -8,7 +8,24 @@
   ‎![](https://komarev.com/ghpvc/?username=jaxtoy&color=4D6A75&style=flat&label=VERY+REAL+FANS&base=476)
 
 
-
+<details>
+    <summary>About Me!!!!</summary>
+    Hey I'm Lapis/Michael/Jax
+  I'm 15 and I'm fictionkin+otherkin
+  I really love making ponies on ponytown and I've been playing since 2021
+</details>  <details>
+    <summary>Pony Town info </summary>
+    🟢 = You can talk to me
+  
+  ⛔ = May be busy or not in the mood to talk 
+  🌙 = offtab/busy 
+  
+  I like C+H but most of the time I'm with friends and I'm too shy to approach others. 
+  
+  I have cover discomfort please don't cover me, otherwise anything is fine.
+  
+  You'll always find me around the TADC/Glitch Productions area, if not then idk what I'm doing
+</details>
 
 
 
